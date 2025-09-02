@@ -1,2 +1,0 @@
-"# aulaRicardo" 
-"# aulaRicardo" 
